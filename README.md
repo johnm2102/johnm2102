@@ -6,5 +6,5 @@
  
  ⚡ Fun fact: I'm trying not to lose my mind :)
  
-![damn-here-we-go-again](https://user-images.githubusercontent.com/79802312/171207932-7cef04f1-ee42-43cd-8767-63ce055ab1f7.gif)
+![Uploading damn-here-we-go-again-damn.gif…]()
 
